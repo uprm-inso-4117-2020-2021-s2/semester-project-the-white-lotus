@@ -1,1 +1,1 @@
-# semester-project-the-white-lotus
+This team is currently working on this repo.
